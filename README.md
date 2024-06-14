@@ -17,5 +17,5 @@ Currently Learning:
 ---------------------------------------------------------------
 Career Opportunities:
 ---------------------------------------------------------------
-  
-- Lead / senior software engineer looking for permanent work based in the City of London (EC2M) area.
+
+Lead/Senior software engineer looking for permanent work based in the City of London, Canary Wharf, Stratford or short tube commute from these destinations.
